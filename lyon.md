@@ -24,7 +24,7 @@ WE ARE SPORTS
 ### https://www.dreamaway.fr/experience/top-squad/
 Survivre aux Zombies en COOP
 JUSQU'À 8 JOUEURS
-+ de 16ans
+plus de 16ans
 NIVEAU MOYEN
 
 ~25 MINUTES
