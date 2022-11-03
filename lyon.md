@@ -101,7 +101,9 @@ WE ARE SPORTS
 
 ### http://www.icombat-lyon.fr/
 Laser game avec un bracelet qui t'envoie une décharge pour simuler une blessure
+
 SESSION OUVERTE : 25 EUR  /PERSONNE
+
 SESSION PRIVATIVE : 460 EUR
 
 WE ARE SPORTS
