@@ -1,4 +1,4 @@
-# Sport d'equipe
+# Sport d'équipe
 
 ## https://www.bubble-foot-lyon.com/
 **Bubble Foot**
